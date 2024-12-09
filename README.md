@@ -22,8 +22,3 @@
 
 <h1 align="center"></[](h)>
 
-</h1>
-<h1 align="center"></[](h)>
-  
-![9570d008ba73dc840af676e0b67a1197](https://github.com/user-attachments/assets/11faabdc-302c-4edf-86e8-7ecf45b71aed)
-
