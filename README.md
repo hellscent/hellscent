@@ -10,7 +10,7 @@
   
 <p align="center"> preferably W2I 
 
-<p align="center"> I usually get back at you if u whispered me , but if i don't i were probably afk. so maybe leave a msg on my retrospring instead
+<p align="center"> I'd usually get back at you if u whispered me , but if i don't i were probably afk. so maybe leave a msg on my retrospring instead
 
 <p align="center"> pretty blood dni, other that that ur free to int
     
