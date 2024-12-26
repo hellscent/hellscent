@@ -10,11 +10,11 @@
   
 <p align="center"> preferably W2I 
 
-<p align="center"> 𝗦𝗹𝗼𝘄 𝗿𝗲𝗽𝗹𝘆 𝗼𝗿 𝗻𝗼 𝗿𝗲𝗽𝗹𝘆. 𝗟𝗲𝗮𝘃𝗲 𝗺𝘀𝗴 𝗶𝗻 𝗿𝗲𝘁𝗿𝗼𝘀𝗽𝗿𝗶𝗻𝗴 𝗶𝗻𝘀𝘁𝗲𝗮𝗱 
+<p align="center"> I usually get back at you if u whispered me , but if i don't i were probably afk. so maybe leave a msg on my retrospring instead
 
-<p align="center"> I don't have DNI feel free to int
+<p align="center"> pretty blood dni, other that that ur free to int
     
-<p align="center"> Sit with me if you feel like it. I don't mind
+<p align="center"> cuddles are always open, if i were unaccompanied 
 
 
 
