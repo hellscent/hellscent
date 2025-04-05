@@ -1,10 +1,6 @@
 
 </h1>
 
-
-<p  align="center"> <img src="https://i.imgur.com/aAE7quv.png" width="150">
-
-
   
 <p align="center"> preferably W2I 
 
