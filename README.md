@@ -8,7 +8,7 @@
   
 <p align="center"> preferably W2I 
 
-<p align="center"> I'd usually get back at you if you whispered me, but if I didn't, I'm probably AFK. So maybe leave a message on my Retrospring instead."
+<p align="center"> I'd usually get back at you if you whispered me, but if I didn't, I'm probably AFK. So maybe leave a message on my neorospring instead.
 
 <p align="center"> I'm open with making friends but I can be very awkward at first [ I'm a young adult so there will be some boundaries]
     
