@@ -11,8 +11,6 @@
 <p align="center"> cuddles are always open, if I were unaccompanied 
 
 
-<p align="center"> <img src="https://i.imgur.com/sDve0NO.pngjR.png&=80" width="400">
-
 
 
 <p align="center"> 
